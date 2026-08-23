@@ -1,0 +1,1 @@
+# SalaryNspect-privacy
