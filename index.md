@@ -60,4 +60,4 @@ Any updated policy will reflect the practices of the current version of SalaryNs
 
 Questions about this privacy policy may be directed to:
 
-**[YOUR SUPPORT OR FEEDBACK EMAIL]**
+salarynspect.feedback@gmail.com
